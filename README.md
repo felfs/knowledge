@@ -1,0 +1,2 @@
+# knowledge
+(apenas conhecimento)
